@@ -1,4 +1,4 @@
-### Ray Yuan Liu
+### Jui Yuan Liu
 
 Software Developer/Game Designer
 
